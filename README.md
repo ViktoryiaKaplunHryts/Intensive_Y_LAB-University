@@ -1,4 +1,5 @@
 [ДЗ№1](https://docs.google.com/spreadsheets/d/1FuZb8ruHUall_g3oByG45nOkkwIgNWU3asDn5I0QRz4/edit?usp=sharing)
 
+[ДЗ№2](https://docs.google.com/spreadsheets/d/11izBxK3E-fAlfgiYQ5BUjp4ZX3ZGpR1kXcHTUVhfUDw/edit?usp=sharing)
 
 
