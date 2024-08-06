@@ -4,4 +4,8 @@
 
 [ДЗ№3](https://docs.google.com/spreadsheets/d/1VQI2Dxyg5-TqvHoZjMF6eHv_phS2NaeKFtU3g1KFcUI/edit?usp=sharing)
 
+✔ **Сертификат:**
+
+![](https://github.com/ViktoryiaKaplunHryts/ViktoryiaKaplunHryts/blob/main/certificates/2024-03-06_102414.png)
+
 
